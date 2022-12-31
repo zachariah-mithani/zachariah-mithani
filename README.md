@@ -1,1 +1,1 @@
-  I am currently a student at Georgia State University pursuing a computer science degree. I am looking to work in the data science/analytics field and want to expand my knowledge of coding and its analytical use. I am always looking for new opportunities to learn and grow.
+  I am currently a student at Georgia State University pursuing a computer science degree. I am looking for work as a junior or internship role as a python developer.
