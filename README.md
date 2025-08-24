@@ -1,1 +1,1 @@
-AI is the future!
+Building solutions that shape the future 
